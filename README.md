@@ -12,6 +12,8 @@
 <img width="20" height="20" alt="68747470733a2f2f706978656c732e6372642e636f2f6173736574732f696d616765732f67616c6c65727934342f30313766386163322e6769663f763d3239343136313134" src="https://github.com/user-attachments/assets/a7077156-8627-4e79-83b1-98ae1437d053" />
 archie 𓂃 <sup><sub>or</sub></sup> 𓍼 sprout
 <div align="center"> 
+<sup><sub>he / any</sub></sup>
+<div align="center"> 
  <details>
   <summary><img width="20" height="20" alt="tumblr_b673500c847ca6fed14edcb8cf520c9f_ff22387d_75" src="https://github.com/user-attachments/assets/163c2ac4-6932-45ea-968c-386be6371e5f" />byi</summary>
   <br>
