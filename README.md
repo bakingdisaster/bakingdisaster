@@ -51,7 +51,6 @@ $\color{red}{\text{if you are a proshipper/profic/darkfiction/ etc.}}$
 <br>
      $\color{red}{\text{basic dni criteria ( racists, homophobes, transphobes etc.)}}$
 <br>
-<details>
 <div align="center"> 
 
  
