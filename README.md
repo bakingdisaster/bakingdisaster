@@ -30,6 +30,8 @@ $\color{red}{\text{i might be a little stubborn, remind me if it bothers you!}}$
 <br>
 $\color{red}{\text{some jokes might be a little sensitive to me!}}$
 <br>
+$\color{red}{\text{I barely check my atabook}}$
+<br>
 
  </details>
  <br>
