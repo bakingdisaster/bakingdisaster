@@ -16,7 +16,7 @@ archie 𓂃 <sup><sub>or</sub></sup> 𓍼 sprout
 <sup><sub>he / any</sub></sup>
 <div align="center"> 
  <details>
-  <summary><img width="20" height="20" alt="tumblr_b673500c847ca6fed14edcb8cf520c9f_ff22387d_75" src="https://github.com/user-attachments/assets/163c2ac4-6932-45ea-968c-386be6371e5f" />byi</summary>
+  <summary><img width="20" height="20" alt="tumblr_b673500c847ca6fed14edcb8cf520c9f_ff22387d_75" src="https://github.com/user-attachments/assets/163c2ac4-6932-45ea-968c-386be6371e5f" />some info</summary>
   <br>
 <img width="22" height="22" alt="tumblr_c1276dcb955c85945e6165f8c8a94afb_994e19b8_75" src="https://github.com/user-attachments/assets/6bb2c6da-6860-4df2-ade9-0bc45ab1bd09" /> <img width="22" height="22" alt="tumblr_a40c50976f5beea337b8f5c54a85bd0f_b550e733_75" src="https://github.com/user-attachments/assets/82ca327e-da92-4f21-96aa-3307c22dc10a" />
 
