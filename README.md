@@ -52,9 +52,6 @@ $\color{red}{\text{if you are a proshipper/profic/darkfiction/ etc.}}$
      $\color{red}{\text{basic dni criteria ( racists, homophobes, transphobes etc.)}}$
 <br>
 
-
 <img width="97" height="57" alt="tumblr_ca15160c04163e45e3989be92cad9f15_886a0199_100" src="https://github.com/user-attachments/assets/8a5d0ee5-9ee5-4b59-9aa9-ed62b331b2a3" />
 <img width="99" height="56" alt="tumblr_e7506f5e906c892f02fddbe7c77acb44_f4341726_100" src="https://github.com/user-attachments/assets/ac6a1481-7c50-4404-aa7b-936c9f502c58" />
 <p align="center">
-
-
