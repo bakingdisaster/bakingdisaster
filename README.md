@@ -20,7 +20,7 @@ archie 𓂃 <sup><sub>or</sub></sup> 𓍼 sprout
   <br>
 <img width="22" height="22" alt="tumblr_c1276dcb955c85945e6165f8c8a94afb_994e19b8_75" src="https://github.com/user-attachments/assets/6bb2c6da-6860-4df2-ade9-0bc45ab1bd09" /> <img width="22" height="22" alt="tumblr_a40c50976f5beea337b8f5c54a85bd0f_b550e733_75" src="https://github.com/user-attachments/assets/82ca327e-da92-4f21-96aa-3307c22dc10a" />
 
-$\color{red}{\text{w2i + c*h}}$
+$\color{red}{\text{w2i + c*h enc !!}}$
 <br>
 $\color{red}{\text{I block freely!}}$
 <br>
