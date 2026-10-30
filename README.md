@@ -22,6 +22,8 @@ archie 𓂃 <sup><sub>or</sub></sup> 𓍼 sprout
 
 $\color{red}{\text{w2i + c*h enc !!}}$
 <br>
+$\color{red}{\text{I am a minor,}}$
+<br>
 $\color{red}{\text{I block freely!}}$
 <br>
 $\color{red}{\text{I am mostly offtab, dont get mad when I dont respond please!}}$
