@@ -34,7 +34,7 @@ $\color{red}{\text{some jokes might be a little sensitive to me!}}$
 <br>
 $\color{red}{\text{I barely check my atabook}}$
 <br>
-$\color{red}{\text{REMIND ME / WHISPER ME IF I FOLLOW SOMEONE PROBLEMATIC PLS.}}$
+$\color{red}{\text{LMK / WHISPER ME IF I FOLLOW/CUD WITH SOMEONE PROBLEMATIC PLS.}}$
 <br>
 
 
