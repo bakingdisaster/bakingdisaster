@@ -3,9 +3,14 @@
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fbakingdisaster"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fbakingdisaster&label=orders%20ready%20%E2%99%A1&labelColor=%23f47373&countColor=%2337d67a&style=plastic" /></a>
 <p align="center">
     
-<img width="469" height="469" alt="Rainbow-Time_Sprout_Art" src="https://github.com/user-attachments/assets/91581779-ae15-4b35-9e7e-cf11b21c0240" />
+<img width="754" height="1023" alt="Chef_Art" src="https://github.com/user-attachments/assets/80249729-8888-41b9-8858-6b6ef7a273ea" />
+
+
+
 
 <p align="center">
+    <img width="70" height="70" alt="Teamwork%21_Sprout_Sticker" src="https://github.com/user-attachments/assets/f3f6ed9d-6292-4341-8708-a7e9f0fcd1cb" />
+
 <p align="center">
 <sup><sub>this git is still wip...<sup></sup>
 <br>
