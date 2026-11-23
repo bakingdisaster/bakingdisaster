@@ -3,7 +3,7 @@
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fbakingdisaster"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fbakingdisaster&label=orders%20ready%20%E2%99%A1&labelColor=%23f47373&countColor=%2337d67a&style=plastic" /></a>
 <p align="center">
     
-<img width="482" height="441" alt="sprout_icon-removebg-preview" src="https://github.com/user-attachments/assets/623672f7-a458-4f12-9b48-7aa894d9c854" />
+<img width="469" height="469" alt="Rainbow-Time_Sprout_Art" src="https://github.com/user-attachments/assets/91581779-ae15-4b35-9e7e-cf11b21c0240" />
 
 <p align="center">
 <p align="center">
