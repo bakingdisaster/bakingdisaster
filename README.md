@@ -3,7 +3,7 @@
 <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fbakingdisaster"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fbakingdisaster&label=orders%20ready%20%E2%99%A1&labelColor=%23f47373&countColor=%2337d67a&style=plastic" /></a>
 <p align="center">
     
-<img width="754" height="1023" alt="Chef_Art" src="https://github.com/user-attachments/assets/80249729-8888-41b9-8858-6b6ef7a273ea" />
+<img width="572" height="429" alt="Screenshot 2026-11-25 190806" src="https://github.com/user-attachments/assets/bc7640f3-d2eb-4a19-9ae0-9c35ccac2834" />
 
 
 
